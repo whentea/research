@@ -1,2 +1,2 @@
 # research
-Many times, 'n it will get stuck on your mind
+>> Many times, 'n it will get stuck on your mind
