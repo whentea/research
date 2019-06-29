@@ -1,2 +1,2 @@
 # Research
->> Many times, 'n it will get stuck on your mind
+>> Let's make a breakthrough !!
